@@ -1,5 +1,5 @@
-Hello there 👋  Welcome to my GitHub Profile :bangbang:
-:hotsprings: :airplane: :unlock:  :hourglass: :computer: :tiger2:
+:hotsprings: Hello there 👋  Welcome to my GitHub Profile :bangbang: 
+ 
 
 :mailbox: Feel free to connect with me, 
 I always keep it :100: 
