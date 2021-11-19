@@ -1,7 +1,7 @@
 Hello there 👋  Welcome to my GitHub Profile :bangbang:
 :hotsprings: :airplane: :unlock:  :hourglass: :computer: :tiger2:
 
-:mailbox: Feel free to connect with me 
+:mailbox: Feel free to connect with me, 
 I always keep it :100: 
 
 <!--
