@@ -4,6 +4,8 @@
 :mailbox: Feel free to connect with me, 
 I always keep it :100: 
 
+📭 Danielhaye17@gmail.com
+
 <!--
 **danielhaye17/danielhaye17** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
